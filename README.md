@@ -1,6 +1,6 @@
 # temporary-notes-app
  
- This is an archive because noodle was a stinky and doesn't like perserving her history!!!!
+ This is an archive because sooosheie was a stinky and doesn't like perserving her history!!!!
  i also did this to annoy her.
  
  :D
